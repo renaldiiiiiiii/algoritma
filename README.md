@@ -1,0 +1,2 @@
+# algoritma
+sangat menyenangkan
